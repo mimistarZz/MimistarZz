@@ -15,6 +15,7 @@ pls read my strawpage to know info about me !!
 
  multi fandom /artstyle/shipper! (depending on the fandom or show!)
 
+![17699554716313238192433514530771](https://github.com/user-attachments/assets/08c1f81c-e819-4421-9ee2-376e0e32fbb5)
 
 
 
